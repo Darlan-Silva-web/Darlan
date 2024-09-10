@@ -14,3 +14,5 @@
  segunda-feira, 02 de Setembro de 2024
 
  quinta-feira, atualização ás 22:35
+
+ segunda-feira, 09/09/24
